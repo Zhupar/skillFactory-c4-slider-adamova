@@ -1,0 +1,1 @@
+# skillFactory-c4-slider-adamova
